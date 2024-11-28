@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Odamasan
+- 👋 Hi, I’m @ElissamaVic
 - 👀 I’m interested in learning, (i'm also not good with words, soo this resume it's gonna be boring);
 - 🌱 I’m currently learning to code (beginner);
 - 💞️ I’m looking to collaborate with the communite, i want to learn and also teach and help people with my personal experience;
